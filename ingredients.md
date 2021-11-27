@@ -1,0 +1,1 @@
+The ingredients in maggi are salt, sugar, partially hydrogenated palm oil, monosodium glutamate, cornstarch, and less than 2% of onion powder, chicken fat, dehydrated chicken, garlic powder, turmeric, disodium inosinate, spices, TBHQ (preservative).
